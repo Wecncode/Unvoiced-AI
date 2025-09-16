@@ -30,7 +30,7 @@ Our mission is to empower **deaf, mute and hard-of-hearing communities** by brid
 ---
 
 ## Team building Unvoiced AI
-⭐ Tebogo Ntloane ⭐ Aluwani Netshishivhe ⭐ Esther Nkulu
+⭐ **Tebogo Ntloane** ⭐ **Aluwani Netshishivhe** ⭐ **Esther Nkulu**
 
 ---
 
